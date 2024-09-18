@@ -1,1 +1,0 @@
-# jamalPortfolio.github.io
